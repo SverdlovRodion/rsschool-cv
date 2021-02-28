@@ -1,6 +1,4 @@
 # Sverdlov Rodion
-![My photo](https://sun9-41.userapi.com/impf/VfSVKWm0nKsFTAAurz4ORcCEPdQhXjfOVQ5DBg/S1LT2hvHso0.jpg?size=566x567&quality=96&sign=f1b29d6a2c345a24f3fb8c26e08c0d8d&type=album)
-
 
 ## Contacts
 
